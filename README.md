@@ -1,4 +1,7 @@
 WPU RESOLUSI
+
 -Bangun kebiasaan bangun pagi
+
 -Perbanyak relasi dan pertemanan
+
 -Lebih percaya diri dalam berbicara di depan orang lain
