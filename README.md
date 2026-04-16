@@ -5,3 +5,5 @@ WPU RESOLUSI
 -Membuat plasfrom untuk pengelolaan vidio
 
 -Membuat forum diskusi 
+
+kolaborasi dengan 
