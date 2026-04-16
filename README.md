@@ -1,9 +1,4 @@
 WPU RESOLUSI
-
--Konsisten untuk membuat konten 2x seminggu
-
--Membuat plasfrom untuk pengelolaan vidio
-
--Membuat forum diskusi 
-
-kolaborasi dengan 
+-Bangun kebiasaan bangun pagi
+-Perbanyak relasi dan pertemanan
+-Lebih percaya diri dalam berbicara di depan orang lain
